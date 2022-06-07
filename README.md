@@ -5,3 +5,9 @@ PRIMERA LECCION
 - La Terminacion IS y ARE
 - El Adjetivo en Ingles 
 - Examen de la primera leccion
+
+SEGUNDA LECCION 
+- Meses del año 
+- Dias de la semana 
+- Pronombres personales 
+- Verbos mas importantes
