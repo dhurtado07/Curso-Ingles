@@ -11,3 +11,6 @@ SEGUNDA LECCION
 - Dias de la semana 
 - Pronombres personales 
 - Verbos mas importantes
+- Opuestos y nuevas palabras 
+- Uso del gerundio 
+- Tiempo futuro 
